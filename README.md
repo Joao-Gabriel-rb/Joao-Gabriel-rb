@@ -75,7 +75,7 @@ Busco oportunidades de estágio e desenvolvimento profissional na área de tecno
 ## 📫 Contato
 
 * GitHub: https://github.com/Joao-Gabriel-rb
-* E-mail: 
+* E-mail: jgrbleus@outlook.com 
 
 ---
 
